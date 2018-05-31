@@ -12,4 +12,4 @@ Slobodno preuzmete fotografije do 30.07.2018, objavite ih na društvenim mrežam
 
 * [Foto](https://1drv.ms/f/s!AvEfdT0PB_k1ka1juKQeO8W4Bg41Lg)
 * [Video](https://1drv.ms/f/s!AvEfdT0PB_k1kaw50bKrpGC93Y8vRg)
-* [Fotkaona - original](https://1drv.ms/f/s!AvEfdT0PB_k1kYY3fMW3f61ISZovvg)
+* [Fotkaona](https://1drv.ms/f/s!AvEfdT0PB_k1kYY3fMW3f61ISZovvg)
