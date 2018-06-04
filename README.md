@@ -2,7 +2,7 @@
 
 ## Hvala
 
-Hvala vam što ste prisustvovali našem vjenčanju, 14 travnja 2018e.
+Hvala vam što ste prisustvovali našem vjenčanju, 14. travnja 2018.
 
 Uključite se s čestitkama i doživljajima putem hashtag [#HrvojeISara](https://www.facebook.com/hashtag/hrvojeisara)
 
